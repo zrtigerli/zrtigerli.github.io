@@ -1,2 +1,0 @@
-
-Tiger's Temporary webPage
